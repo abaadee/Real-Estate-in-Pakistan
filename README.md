@@ -1,0 +1,2 @@
+# Real-Estate-in-Pakistan
+https://abaadee.com/   Abaadee is the growing platform for finding the right Real Estate in Pakistan. We enable everyone and anyone to buy and sell property in Pakistan, our website has various features to filter property and find the right buyer, as we take pride in being the fastest growing property portal in Pakistan. We have partnered with thousands of Real Estate agents across Pakistan to help you grow better and profitable property deals.
